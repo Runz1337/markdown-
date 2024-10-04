@@ -73,7 +73,7 @@ I see nothing beyond this.
 I am afraid to die.
 But horrified to live.
 This thing doesn't let me sleep.
-I had to laugh in front of her while talking cuz I just can't tolerate her words. I lose my mind when I find her saying anything to supress the topic and avoid fixing things. That's damn devastating for me and dumb with all of her lies. I can clearly see how irritated she is and how much she hate me now and try to avoid me anyhow. Afterall I achieved this.That never frndly at all in any way.
+I had to laugh in front of her while talking cuz I just can't tolerate her words. I lose my mind when I find her saying anything to supress the topic and avoid fixing things. That's damn devastating for me and dumb with all of her lies. I can clearly see how irritated she is and how much she hate me now and try to avoid me anyhow. Afterall I achieved this.That's never frndly at all in any way.
 I achieved nothing.
 Everything went to waste.
 I'm drained.
